@@ -1,0 +1,1 @@
+# Kanye_quotes_standalone_app
